@@ -1,3 +1,3 @@
 # Tiptoe
-First post on GBringing change to the digital world
+Bringing change to the digital world
  
